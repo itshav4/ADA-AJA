@@ -1,2 +1,1 @@
-# Ada-ada-Aja
-Web
+#file:///C:/MAPEL%20%20X%20PPLG1/NGODING%20CUK/WEB%20SENDIRI/index.html
